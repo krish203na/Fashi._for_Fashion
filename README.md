@@ -192,4 +192,4 @@ Contributions are always welcome to improve Fashi! To contribute:
 If you have any questions, suggestions, or feedback, feel free to reach out:
 
 - **Email**: [krishla203@gmail.com](mailto:krishla203@gmail.com)
-- **GitHub**: [krish203na](https://github.com/krish203na)
+- **LinkedIn**: [Krishna]([https://github.com/krish203na](https://www.linkedin.com/in/krishna-panchal-5426aa271))
